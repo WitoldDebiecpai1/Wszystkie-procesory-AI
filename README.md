@@ -1,0 +1,1 @@
+# Wszystkie-procesory-AI
