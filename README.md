@@ -1,1 +1,1 @@
-# Wszystkie-procesory-AI
+# Wszystkie-procesory-AI Wszystkie generacje. 
